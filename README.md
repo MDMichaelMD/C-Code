@@ -1,0 +1,1 @@
+These files are my previous class codes that I submitted for credit and got point one. I finished with around a 100% but i do know care to look it up if there were small mistakes. Do not copy my code for credit if you recieve similar questions. This is on the internet and well documented.
